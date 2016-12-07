@@ -1,4 +1,4 @@
 # DoeSangue
-About this organization
+Sobre esta organização
 
-_**(more info coming soon)**_
+_**(mais informações em breve)**_
